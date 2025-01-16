@@ -1,0 +1,1 @@
+In 2025, the college schemes were provided by Sir Dharma Raj Thanait, who gave the practical sessions, and Raghav Vian Panthi completed them..
